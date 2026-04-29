@@ -1,4 +1,4 @@
-
+new my avatar Script is the best my avatar Script, featuring auto-upgrade and infinite resources. Safe and powerful for all your needs.
 
 
 
